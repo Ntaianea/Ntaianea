@@ -1,8 +1,6 @@
-- 👋 Oi, Eu sou a @Ntaianea
-- 👀 Eu estou interessada em Aprender a mecher no Github.
-- 🌱 Eu estou atualmente aprendendo HTML e CSS.
-- 💞️ Eu estou procurando colaborar Para aprender o conteúdo.
-- 📫 Como chegar a mim taiane.nunes@escola.pr.gov.br
-
-
 Conciencia Negra
+A data de sua morte, descoberta por historiadores no início da década de 1970, motivou membros do Movimento Negro contra a Discriminação Racial, em um congresso realizado em São Paulo, no ano de 1978, a elegerem a figura de Zumbi como Símbolo da luta e resistência dos negros escravizados no Brasil, bem como da Luta Por Direitos que os afro-descendentes reivindicam.
+
+Com isso, o 20 de Novembro tornou-se a data para celebrar a luta dos negros contra a opressão no Brasil. Por essa razão, o Treze de Maio, data em que a Abolição da Escravatura aconteceu, foi deixado de escanteio. O argumento utilizado é que o Treze de Maio representa uma vez que, após a Lei Áurea, os negros foram entregues á própria sorte e ficaram sem nenhum tipo de assistência do poder público.
+
+No caso do Dia Nacional Zumbi e da Consciência Negra, a data foi criada por meio da citada Lei n°12.519, no dia 10 de Novembro de 2011, durante o governo de Dilma Roussef. Essa lei não transformou a data em feriado nacional, assim, os governos de cada estado e cidade do Brasil devem optar por ser feriado ou não. O jornalista Laurentino Gomes fala que , até 2018, o dia 20 de Novembro era Feriado em 1047 municípios do Brasil (de um total de 5561 municípios).
