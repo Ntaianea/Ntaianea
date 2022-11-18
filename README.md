@@ -1,4 +1,4 @@
-Conciencia Negra
+Concência Negra
 A data de sua morte, descoberta por historiadores no início da década de 1970, motivou membros do Movimento Negro contra a Discriminação Racial, em um congresso realizado em São Paulo, no ano de 1978, a elegerem a figura de Zumbi como Símbolo da luta e resistência dos negros escravizados no Brasil, bem como da Luta Por Direitos que os afro-descendentes reivindicam.
 
 Com isso, o 20 de Novembro tornou-se a data para celebrar a luta dos negros contra a opressão no Brasil. Por essa razão, o Treze de Maio, data em que a Abolição da Escravatura aconteceu, foi deixado de escanteio. O argumento utilizado é que o Treze de Maio representa uma vez que, após a Lei Áurea, os negros foram entregues á própria sorte e ficaram sem nenhum tipo de assistência do poder público.
